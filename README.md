@@ -1,0 +1,3 @@
+                                             Momos
+
+Momos are steamed or fried dumplings stuffed with mixed vegetables. It is a delecious snack enjoyed in Tibet region. From last few years, Momos are getting very popular in other parts of India. It can be easily prepared at home by either steaming or deep frying.The tradition requires it to slow cook by steaming and this recipe uses this technique to keep them healthier and authentic. It can be served with Spicy red tomato chilli chutney or mayonnaise and schezwan chutney mix.
